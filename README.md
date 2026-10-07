@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SAMJ050914HNLLRNA2
+SAMJ050914HNLLRNA2
